@@ -1,1 +1,1 @@
-# [Taplink](https://ukmoldogazy.github.io/taplink/ "Taplink")
+# [Taplink](https://ukmoldogazy.github.io/choyro-taplink/ "Taplink")
